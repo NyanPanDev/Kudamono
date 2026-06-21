@@ -1,0 +1,2 @@
+# Kudamono
+scientia virtus est
